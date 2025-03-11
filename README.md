@@ -3,7 +3,7 @@
 - 🌱 Practicing and trying to robust Backend side
 - 💞️ I’m looking to collaborate on future education with main aim, programming
 - 📫 How to reach me in TG @aziznodirovich
-- 😄 Pronouns: English, Russian, Uzbek and Persian
+- 😄 Pronouns: He, His, Him
 - ⚡ Fun fact: I just love sweeties, spicies and hot
 
 <!---
